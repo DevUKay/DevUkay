@@ -11,7 +11,7 @@
 
 - 👯 I’m looking to collaborate on **some open source projects**
 
-- 🤝 I’m looking for help with **with recommendations**
+- 🤝 I’m looking for help **with recommendations**
 
 - 📫 How to reach me **kingsleyukay@protonmail.com**
 
